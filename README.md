@@ -1,2 +1,0 @@
-# IluminationProject3D
- 
